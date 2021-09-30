@@ -6,7 +6,7 @@ When I'm free, I enjoy [📖 reading](), watching [🎬 movies]() and [📺 anim
 
 If you're interested, please checkout my personal [✏️ blog](https://www.tenire.com) where I share my ordinary yet joyful life. 
 
-Feel free to contact me via <a href="mailto:i@tenire.com">Email</a> or [Telegram](https://t.me/tenire).
+Feel free to contact me via <a href="mailto:i@tenire.com">Email</a> or [Telegram](https://t.me/itenire).
 
 ## 📊 Stats
 
